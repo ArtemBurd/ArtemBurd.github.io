@@ -1,2 +1,2 @@
 # ArtemBurd.github.io
-The website :)
+The website for everyone:)
